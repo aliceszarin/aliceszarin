@@ -4,7 +4,7 @@ Systems enthusiast student 👾
 
 Currently, I spend my days studying Python 🐍, understanding how chatbots work, databases, and APIs. 📊
 
-![enter image description here](https://im4.ezgif.com/tmp/ezgif-4-e89a4bc219.gif)
+![enter image description here](https://i.pinimg.com/originals/bb/34/01/bb34017e0cd6eeaff3e785b60a8ff59f.gif)
 
 "The only way to do great work is to love what you do."                   - Steve Jobs 📚
  ##
