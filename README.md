@@ -1,4 +1,4 @@
-# ✨Hi, I'm Bilu Szarin✨
+# ✨Hi, I'm Szarin✨
 
 Systems enthusiast student 👾 
 
